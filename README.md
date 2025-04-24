@@ -1,5 +1,3 @@
-<p>&nbsp;</p>
-<p>&nbsp;</p>
 <h2><a href="https://www.facebook.com/SlimJaro.CA.Get/">✅&nbsp;<strong>SlimJaro Canada&ndash; Official Website Link &ndash; Click Here ✅</strong></a></h2>
 <div class="separator"><a href="https://timesfiver.com/slimjaroca-buy" target="_blank"><img src="https://blogger.googleusercontent.com/img/a/AVvXsEjlfR8RcszxP_aX7v987TqUhmT4Mx8Ya8MScxxcpoOoEdfnqQLAwyvDCl_VwtzHp4y_104kqQEBGpGGYGc0_UFZQFZLgh276ypedqlytTCMsOZcerNMTVucqsGgwbW5O1OscSOoJY9WZLHnnzIWbyrWBMOYy9Eyt8Ad6XtA18-p0nwH7PRsb3bV3RXYkl8=w483-h343" alt="" width="483" height="343" data-original-height="725" data-original-width="1024" /></a></div>
 <p>&nbsp;</p>
